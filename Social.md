@@ -1,2 +1,3 @@
-[GitHub](https://github.com/GzimRexhepi)Gzim Rexhepi
-[Instagram](https://www.instagram.com/gzim_rexhepi1/)Gzim Rexhepi
+[GitHub](https://github.com/GzimRexhepi)
+(`<br>`)
+[Instagram](https://www.instagram.com/gzim_rexhepi1/)
